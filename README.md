@@ -1,0 +1,6 @@
+[Screencast from 2024-09-17 17-27-31.webm](https://github.com/user-attachments/assets/c12ca4bd-449e-4fe1-b90b-57290531e021)
+![image](https://github.com/user-attachments/assets/faf6dde7-bd9f-43f3-93f8-20d949407c37)
+![image](https://github.com/user-attachments/assets/0a6b1e52-116d-400f-8f59-ae608b7cf409)
+![image](https://github.com/user-attachments/assets/ddd88634-3739-4f01-a2c2-ea2b9afe8c30)
+![image](https://github.com/user-attachments/assets/5300af16-b933-4edf-ae87-dd8d8efa8380)
+![image](https://github.com/user-attachments/assets/93222e93-b8d1-45ed-bd88-6576ff40244d)
